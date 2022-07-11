@@ -1,1 +1,1 @@
-Func's blog
+Func's blog!!
